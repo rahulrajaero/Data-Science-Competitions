@@ -1,1 +1,1 @@
-* Here lies all the competitions I take part in.*
+*Here lies all the competitions I take part in.
